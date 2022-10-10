@@ -9,6 +9,10 @@
 * 1 Tsp Mustard Seed
 * 1 Star Anise
 
-Boil whole beetroot for 1h, Peel
+Boil whole beetroot for 1h,
+
+Peel
+
 Add beetroot and all other ingredients to a pan and bring to a simmer
+
 Jar
