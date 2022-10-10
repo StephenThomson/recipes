@@ -1,4 +1,4 @@
-* 600g Beetroot
+* 600g Beetroot (4 Medium-Large)
 * 350g Malt Vinegar
 * 75g Dark Brown Sugar
 * 10g Salt
